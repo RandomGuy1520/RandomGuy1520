@@ -5,4 +5,4 @@
 - 📫 How to reach me: No way.
 - 😄 Pronouns: None
 - ⚡ Fun fact: I love math and computer science.
-- 
+- Eating: I LOVE EATING MATH AND COMPUTER SCIENCE.
