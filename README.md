@@ -6,3 +6,7 @@
 - 😄 Pronouns: None
 - ⚡ Fun fact: I love math and computer science.
 - Eating: I LOVE EATING MATH AND COMPUTER SCIENCE.
+
+Contact:
+
+Luogu: [1234567890regis](https://www.luogu.com.cn/231022)
