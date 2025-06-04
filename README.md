@@ -11,6 +11,8 @@
 
 Link: **https://randomguy1520.github.io/**
 
+![Page](Page.PNG)
+
 ## Contact:
 
 Luogu: [1234567890regis](https://www.luogu.com.cn/231022)
